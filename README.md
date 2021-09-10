@@ -23,7 +23,7 @@ Además de esos efectos, podría también provocar cierta toxicidad a nivel neur
 
 
 
-# ¿que es lo que contiene una sopa maruchan segun la profeco 
+# ¿Qué es lo que contiene una sopa maruchan segun la profeco 
 
 Los números que presentó la Profeco fueron también contundentes. Indicaron que la sopa instantánea aporta de 270 a 334 kilocalorías, de 6 a 7 gramos de proteína, de 10 a 14 gramos de grasa y de 40 a 45 gramos de carbohidratos; mientras que dos o tres tacos de frijoles refritos con chile, aportan 200 a 300 kilocalorías, de 3 a 4.5 gramos de grasa y de 6 a 9 gramos de proteína.
 
